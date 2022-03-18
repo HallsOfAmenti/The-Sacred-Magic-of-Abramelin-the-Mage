@@ -1,0 +1,2 @@
+# The-Sacred-Magic-of-Abramelin-the-Mage
+Book: S.L. MacGregor Mather’s translation of The Sacred Magic of Abramelin the Mage -> Research: [Aleister Crowley, Loki’s Brood &amp; the Fury of Hell, Part 1](https://www.veteranstoday.com/2022/01/25/aleister-crowley-lokis-brood-the-fury-of-hell-part-1/) , [The Human: Ragnarök III: Loki’s Revenge](https://www.veteranstoday.com/2022/03/10/the-human-ragnarok-iii-lokis-revenge/)
